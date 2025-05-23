@@ -14,7 +14,7 @@
 🔗 **Check out my work:** [GitHub Repositories](https://github.com/DhanushOnTheWeb)  
 
 ## 📬 Connect with Me  
-📌 **LinkedIn:** [Your Profile](www.linkedin.com/in/dhanush-rao-web-developer)  
+📌 **LinkedIn:** [My Profile](https://www.linkedin.com/in/dhanush-rao-web-developer)  
 📌 **Email:** bdhanushrao8@gmail.com
 
 ✨ **Let’s collaborate & build something amazing together!** ✨  
